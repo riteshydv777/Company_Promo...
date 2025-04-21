@@ -1,0 +1,5 @@
+FUTURESEED EARTH FOUNDATION
+A Seed For Sustainable Development
+With a goal of preserving the Environment for Future Generations, the Futureseed Earth Foundation was founded in August 2019. We think it is our duty to take action and alter the society in which we live. We concentrate on a variety of environmental challenges, like climate change, deforestation, pollution, renewable energy, agriculture and rural development, loss of biodiversity, human health, and women's empowerment, all from the standpoint of research, education, and awareness.
+
+visit : https://futureseedearth.com/index.php
