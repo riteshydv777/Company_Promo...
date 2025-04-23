@@ -15,3 +15,17 @@ A Seed For Sustainable Development
 With a goal of preserving the Environment for Future Generations, the Futureseed Earth Foundation was founded in August 2019. We think it is our duty to take action and alter the society in which we live. We concentrate on a variety of environmental challenges, like climate change, deforestation, pollution, renewable energy, agriculture and rural development, loss of biodiversity, human health, and women's empowerment, all from the standpoint of research, education, and awareness.
 
 visit : https://futureseedearth.com/index.php
+
+(4). Energize Express ----->
+Our vision is to be recognized as a leading portfolio management firm that consistently delivers exceptional value to our clients. We aspire to set new standards in the industry by leveraging our deep market expertise, innovative investment strategies, and unwavering commitment to client success. We aim to build lasting relationships with our clients, helping them achieve their financial goals and secure their financial future.
+
+visit : https://energizeexpressllp.com/
+
+
+(5). E2V Academy ----->
+Employment Express Verband LLP is an award winning company, working with the vision of unemployment free India. Employment Express provide placement services, faculty development program, certification programs, skill development sessions, spoken & written sessions, personality development & professional courses in association with multiple companies,
+
+visit : https://employmentexpress.org/
+
+
+
