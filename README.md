@@ -27,5 +27,22 @@ Employment Express Verband LLP is an award winning company, working with the vis
 
 visit : https://employmentexpress.org/
 
+(6). EasyNaukri4U ----->
+Find Your Government Job Today
+Government jobs are in high demand for their benefits. Easynaukri4u helps millions chase their dream with job opportunities and study resources.
+visit : https://easynaukri4u.com/
+
+(7). KenOxis ----->
+We bring the right people together to challenge established thinking and drive transformation.We bring the right people together to challenge established thinking and drive transformation.We bring the right people together to challenge established thinking and drive transformation.We bring the right people together to challenge established thinking and drive transformation.
+visit : https://kenoxistechnologies.com/
+
+(8). RX MEDO CARD ---->
+Up to 30% Discount: Diabetic individuals can access up to 30% off on essential services, including OPD consultations, pharmacy products (medications, diabetes supplies), and diagnostic tests.
+
+Improved Access to Care: Our goal is to ensure that diabetes management, including regular check-ups and essential treatments, is more affordable and accessible for all patients.
+
+Comprehensive Support: Discounts apply to a wide range of services, including consultations with specialists, diabetes-related medications, insulin, testing supplies, and diagnostic screenings.
+
+visit : https://rxmedocard.com/
 
 
